@@ -1,1 +1,1 @@
-Internship at Future Internd
+Internship at Future Interns
